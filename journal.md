@@ -7,3 +7,5 @@ This is an example entry.
 One positive impact is the increased and the downside of the computer voting is the cybersecurity threats and hacking attempts can make the whole voting system fail
 # November 1, 2024
 One negative impact is the increased and the downside of the computer voting is the cybersecurity threats and hacking attempts can make the whole voting system fail
+# November 12. 2024 
+solving tech is more difficult than reserching tech because mswhitby
