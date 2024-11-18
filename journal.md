@@ -9,3 +9,5 @@ One positive impact is the increased and the downside of the computer voting is 
 One negative impact is the increased and the downside of the computer voting is the cybersecurity threats and hacking attempts can make the whole voting system fail
 # November 12. 2024 
 solving tech is more difficult than reserching tech because mswhitby
+# November 18. 2024
+They are not negative effects of relying on technlogy and makes it afforiadble for us online because there is promo codes or something to help out eith the bill
