@@ -11,3 +11,5 @@ One negative impact is the increased and the downside of the computer voting is 
 solving tech is more difficult than reserching tech because mswhitby
 # November 18. 2024
 They are not negative effects of relying on technlogy and makes it afforiadble for us online because there is promo codes or something to help out eith the bill
+# December 2, 2024
+1. i feel like Ai will soon be able to do other things more than a human sometimes it will be filled with intrest but it woudlnt youd have to download games everypones daily Life
