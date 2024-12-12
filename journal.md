@@ -13,3 +13,5 @@ solving tech is more difficult than reserching tech because mswhitby
 They are not negative effects of relying on technlogy and makes it afforiadble for us online because there is promo codes or something to help out eith the bill
 # December 2, 2024
 1. i feel like Ai will soon be able to do other things more than a human sometimes it will be filled with intrest but it woudlnt youd have to download games everypones daily Life
+# December 9, 2024
+Having brain rot isnt bad   only happens to certain people 
