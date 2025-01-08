@@ -17,3 +17,5 @@ They are not negative effects of relying on technlogy and makes it afforiadble f
 Having brain rot isnt bad   only happens to certain people 
 # December 19, 2024 
 yes i am excited for thw winter break take a full break from school and everyone else and be by myself
+# January  8, 2025
+i passed all my classes so i didnt need to fix anything 
