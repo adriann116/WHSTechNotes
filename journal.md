@@ -19,3 +19,5 @@ Having brain rot isnt bad   only happens to certain people
 yes i am excited for thw winter break take a full break from school and everyone else and be by myself
 # January  8, 2025
 i passed all my classes so i didnt need to fix anything 
+# January 13,2025
+People using AI skills is cool but you arent allowed to use it alot cause you need to use youre own skill 
