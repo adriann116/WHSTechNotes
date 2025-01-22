@@ -21,7 +21,9 @@ yes i am excited for thw winter break take a full break from school and everyone
 i passed all my classes so i didnt need to fix anything 
 # January 13,2025
 People using AI skills is cool but you arent allowed to use it alot cause you need to use youre own skill 
-# January 14, 
+# January 14, 2025
 the drone company is a very big company used for farming catching bad guys checking for any bombing threats too also used for extreme violance in war 
-# January 15, 
+# January 15, 2025
 moneyball the whole game is being paid for evn the people playing for the teams they were having so much trouble just to transfre another player to another team and lost almost half a million dollars 
+# January 22,2025
+tiktok will face the ban no matter what without tech everyone and everything will go down 
