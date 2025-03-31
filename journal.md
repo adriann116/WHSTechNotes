@@ -28,4 +28,5 @@ moneyball the whole game is being paid for evn the people playing for the teams 
 # January 22,2025
 tiktok will face the ban no matter what without tech everyone and everything will go down 
 # January 27, 2025
-table
+# March 31,2025
+they will go in debt because they will spend all there money on that big bitcoin thing just for it to go to wate 
