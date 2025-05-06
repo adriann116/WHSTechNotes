@@ -32,3 +32,7 @@ tiktok will face the ban no matter what without tech everyone and everything wil
 they will go in debt because they will spend all there money on that big bitcoin thing just for it to go to wate 
 # April 22, 2025
 i dont really have an appreciation email for any teacher cause every teacher is the same 
+# May 6,2025
+the trend was just a joke and something to laugh at 
+trends online can spread world wide and we will repeat the words
+in my opion the gorilla will win because all the 100 guys will eventually get tired and exhausted and not want to fight and itll all depend on whos fiighting the gorilla 
