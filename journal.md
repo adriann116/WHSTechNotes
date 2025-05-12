@@ -36,3 +36,5 @@ i dont really have an appreciation email for any teacher cause every teacher is 
 the trend was just a joke and something to laugh at 
 trends online can spread world wide and we will repeat the words
 in my opion the gorilla will win because all the 100 guys will eventually get tired and exhausted and not want to fight and itll all depend on whos fiighting the gorilla 
+# May 12, 2025
+The "trend" with the manichal pincal led inside the usb charger port is a weird and a bad behaviour everyone is carrying around and very bad cause it can lead to serious actions in school and for fire fighters to come out for a problem like that 
