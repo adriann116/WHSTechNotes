@@ -40,3 +40,5 @@ in my opion the gorilla will win because all the 100 guys will eventually get ti
 The "trend" with the manichal pincal led inside the usb charger port is a weird and a bad behaviour everyone is carrying around and very bad cause it can lead to serious actions in school and for fire fighters to come out for a problem like that 
 # May 19, 2025
 Yes i am ready for summer dont have to keep waking up early in the morning just for SCHOOL 
+# September 2,2025
+i think the new phone polciy is so bad what if someone is dying in youre room in a lock down and we dont HAVE NO premission TO be on our Phones or because they are locked up and we cant have have them out cause we will get it taken away 
