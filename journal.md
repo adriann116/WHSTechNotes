@@ -42,3 +42,5 @@ The "trend" with the manichal pincal led inside the usb charger port is a weird 
 Yes i am ready for summer dont have to keep waking up early in the morning just for SCHOOL 
 # September 2,2025
 i think the new phone polciy is so bad what if someone is dying in youre room in a lock down and we dont HAVE NO premission TO be on our Phones or because they are locked up and we cant have have them out cause we will get it taken away 
+# September 8, 2025
+just teachs us everything about energy being made 
