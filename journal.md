@@ -49,4 +49,4 @@ i think there shoulndt be ai allowed because what if it mufuction or someone in 
 # September 22, 2025
 i think working behind a screen is not so good nor porfossonal because what if you need to say something and the screen or audio just keeps cutting out for no reason id think its best to keep the jobs person to person so its better perfossonal and better for peoples understanding 
 # September 30, 2025
-evryone just says 67 all the time for no reason
+there isnt a meeting for 67 just started saying it at a basketball game just cause the score board said 6-7
