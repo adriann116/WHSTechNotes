@@ -52,3 +52,5 @@ i think working behind a screen is not so good nor porfossonal because what if y
 there isnt a meeting for 67 just started saying it at a basketball game just cause the score board said 6-7
 # October 6, 2025
 I dont know what type of ai's are out excapte chatgpt snapchat ai google ai 
+# October 14, 2025
+dealing with aI is easy but trying to devlope one will be hard just cause its so much coding 
