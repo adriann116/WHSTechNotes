@@ -54,3 +54,5 @@ there isnt a meeting for 67 just started saying it at a basketball game just cau
 I dont know what type of ai's are out excapte chatgpt snapchat ai google ai 
 # October 14, 2025
 dealing with aI is easy but trying to devlope one will be hard just cause its so much coding 
+# October 20, 2025
+fraklin hardeep and mnarla were all sitting next to each other in the sitting chart 
