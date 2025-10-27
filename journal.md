@@ -56,3 +56,5 @@ I dont know what type of ai's are out excapte chatgpt snapchat ai google ai
 dealing with aI is easy but trying to devlope one will be hard just cause its so much coding 
 # October 20, 2025
 fraklin hardeep and mnarla were all sitting next to each other in the sitting chart 
+# October 27, 2025
+if there were a storm the internetn wouldnt help us but tell us where its at and how fast its coming and where its coming from after that the interent would shut off 
