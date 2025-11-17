@@ -60,3 +60,5 @@ fraklin hardeep and mnarla were all sitting next to each other in the sitting ch
 if there were a storm the internetn wouldnt help us but tell us where its at and how fast its coming and where its coming from after that the interent would shut off 
 # November 10, 2025
 When Families host christmas events kids and some adults are so deep into their phones and stay on it I think nothings changed just always been the same no ones just seen it I Think they should develop[e a app to connect with all their familiy members so that way no one is on their phones for no reason and not just scrolling on apps or playing horror games or shooting and even gore 
+# November 17, 2025
+People often dont celberate anything hardlyt now i think devs should creatre a app so all familys are able to connecet with each other while still using the phones or tablets 
