@@ -62,3 +62,5 @@ if there were a storm the internetn wouldnt help us but tell us where its at and
 When Families host christmas events kids and some adults are so deep into their phones and stay on it I think nothings changed just always been the same no ones just seen it I Think they should develop[e a app to connect with all their familiy members so that way no one is on their phones for no reason and not just scrolling on apps or playing horror games or shooting and even gore 
 # November 17, 2025
 Yes i am ready and leaving out of town to go to new york city
+# December 1, 2025 
+i would want to be a cdl driver and possibaly become a cdl driver in the military and drive big trucks inside their 
