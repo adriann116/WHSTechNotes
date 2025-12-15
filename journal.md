@@ -66,3 +66,5 @@ Yes i am ready and leaving out of town to go to new york city
 i would want to be a cdl driver and possibaly become a cdl driver in the military and drive big trucks inside their 
 # December 8, 2025
 It would take 20 hours to get to austin and back would be maybe 21
+# December 16, 2025
+My plan for the winter break is to stay inside and stay warm and be lazy 
