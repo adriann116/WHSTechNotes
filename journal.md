@@ -70,3 +70,5 @@ i would want to be a cdl driver and possibaly become a cdl driver in the militar
 It would take 20 hours to get to austin and back would be maybe 21
 # December 16, 2025
 My plan for the winter break is to stay inside and stay warm and be lazy 
+# January 12, 2026
+A safe space is needed on a game because there are weirdos around the world and talk to little kids for funnnnn thats bad because underage 
