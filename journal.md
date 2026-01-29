@@ -71,6 +71,9 @@ It would take 20 hours to get to austin and back would be maybe 21
 # December 16, 2025
 My plan for the winter break is to stay inside and stay warm and be lazy 
 # January 12, 2026
+people didjt like the warm up so didnt do it 
+# January 29, 2026
+i mapped a 100 act and sat i scored a good score to where i dont have to take it again 
 A safe space is needed on a game because there are weirdos around the world and talk to little kids for funnnnn thats bad because underage 
 # January 20, 2026
 One way technology promotes a more fair and just society is by providing marginalized groups with global platforms to document and expose systemic injustices. For example, the use of smartphone cameras and social media allows individuals to capture real-time evidence of civil rights violations that might otherwise go ignored by traditional media or legal systems. 
