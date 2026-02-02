@@ -77,3 +77,9 @@ i mapped a 100 act and sat i scored a good score to where i dont have to take it
 A safe space is needed on a game because there are weirdos around the world and talk to little kids for funnnnn thats bad because underage 
 # January 20, 2026
 One way technology promotes a more fair and just society is by providing marginalized groups with global platforms to document and expose systemic injustices. For example, the use of smartphone cameras and social media allows individuals to capture real-time evidence of civil rights violations that might otherwise go ignored by traditional media or legal systems. 
+# February 2, 2026
+1 Disrupt concentration, cause stress, and prevent others from focusing on tasks
+2 (Perfumes, food, or poor body odor) can cause physical discomfort, headaches, and allergy issues for others
+3 (Fidgeting, excessive movement, or clutter) creates a chaotic environment, breaking focus and lowering overall productivity
+4 Regular bathing, using deodorant, and wearing clean clothing
+5 Using a moderate, polite tone, especially when on calls or in common areas
