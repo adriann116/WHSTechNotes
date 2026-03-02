@@ -87,3 +87,5 @@ One way technology promotes a more fair and just society is by providing margina
 Yes i enjoy watching everyone fall or get tackled i also watched the super bowl but it was scripted It was Really bad expect the half time like always No One deveres hate just for performing up there
 # February 23, 2026
 I did not watch the Olympics 
+# March 2, 2026
+Just find a first time job and get first time exprience just to get into other jobs 
