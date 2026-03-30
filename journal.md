@@ -89,3 +89,7 @@ Yes i enjoy watching everyone fall or get tackled i also watched the super bowl 
 I did not watch the Olympics 
 # March 2, 2026
 Just find a first time job and get first time exprience just to get into other jobs 
+# March 23, 2026
+Predictions often fail because computer programs struggle to quantify variables like clutch performance or team chemistry, which can spike or crash in high-stakes playoff scenarios. While a model can track a player's average
+# March 30, 2026
+The odds of a perfect March Madness bracket are a staggering 1 in 120.2 billion if you have some basketball knowledge, and as high as 1 in 9.2 quintillion if you're just flipping a coin
