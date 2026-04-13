@@ -95,3 +95,5 @@ Predictions often fail because computer programs struggle to quantify variables 
 The odds of a perfect March Madness bracket are a staggering 1 in 120.2 billion if you have some basketball knowledge, and as high as 1 in 9.2 quintillion if you're just flipping a coin
 # April 9, 2026
 Ai was the smartest thing and craziest technology that awas added inclduing ai modes to add pictures and for other things they arent uisng it for other things like space and world wide things 
+# April 13, 2026
+The Artemis II mission demonstrated the efficacy of the Orion spacecraft and SLS rocket for deep space travel, yet highlighted necessary improvements for long-term life support systems [1, 2]. Challenges, including a waste management system malfunction, underscore the need for improved, repairable technology to ensure safety during extended journeys like those to Mars. These failures are critical for engineering, as they emphasize the requirement for fail-safe systems before attempting deeper space exploration. While foundational technology is proven, enhancing system reliability remains essential for future missions.
