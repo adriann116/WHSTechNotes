@@ -97,3 +97,5 @@ The odds of a perfect March Madness bracket are a staggering 1 in 120.2 billion 
 Ai was the smartest thing and craziest technology that awas added inclduing ai modes to add pictures and for other things they arent uisng it for other things like space and world wide things 
 # April 13, 2026
 The Artemis II mission demonstrated the efficacy of the Orion spacecraft and SLS rocket for deep space travel, yet highlighted necessary improvements for long-term life support systems [1, 2]. Challenges, including a waste management system malfunction, underscore the need for improved, repairable technology to ensure safety during extended journeys like those to Mars. These failures are critical for engineering, as they emphasize the requirement for fail-safe systems before attempting deeper space exploration. While foundational technology is proven, enhancing system reliability remains essential for future missions.
+# April 20, 2026
+People use Ai for anything now to count to count backwards to count certain things in the picture or even tell you the answeres to your work people will use ai to make beats or maybe even gen one 
