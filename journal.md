@@ -103,3 +103,5 @@ People use Ai for anything now to count to count backwards to count certain thin
 technonlogy did not play apart in anything instead it was no where near me i didnt even pick up my phone 
 # May 6, 2026
 i dont know how to code a train 
+# May 11, 2026
+I grew in confidence and what lead to that is leadership kinda when i would do work and listen friends/people around me will see me and kinda do the same but try to talk and do the same thing and the thing that made me change like that is school work / outside of school being put in public also takes indepence place in the begining of the year i didnt have any confidence i didnt do anything independent and i for sure didnt take my responsibilitys sersiouly and now i do because i see how it kinda takes place in my life im working to learn on decision making for sure  
